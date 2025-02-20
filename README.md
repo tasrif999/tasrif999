@@ -6,6 +6,7 @@
 - 😄 Pronouns: 
 - ⚡ Fun fact:
 - Other
+- one
 
 
 
