@@ -6,8 +6,6 @@
 - 😄 Pronouns: 
 - ⚡ Fun fact:
 - Other
-- one
-- 1232
 
 
 
